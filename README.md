@@ -1,7 +1,7 @@
-# •	🧑: @harkah
+- •	🧑: @harkah
 
-# •	🤖: Proficient IoT ( Internet of Things )
+- •	🤖: Proficient IoT ( Internet of Things )
 
-# •	🇮🇩: Jawa Barat, Garut
+- •	🇮🇩: Jawa Barat, Garut
 
-# •	📞: dyharkah@gmail.com / @harkah_since
+- •	📞: dyharkah@gmail.com / @harkah_since
