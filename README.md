@@ -1,7 +1,1 @@
-- •	🧑: @harkah
-
-- •	🤖: Proficient IoT ( Internet of Things )
-
-- •	🇮🇩: Jawa Barat, Garut
-
-- •	📞: dyharkah@gmail.com / @harkah_since
+Today is victory over yourself of yesterday; tomorrow is your victory over lesser men
